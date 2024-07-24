@@ -13,6 +13,8 @@ Welcome to my little corner of the internet where I share my projects, thoughts,
 
 🏃 I wish I could dedicate more time to exercising such as climbing mountains. 
 
+🎮 “Genshin Impact, Go!”
+
 
 ## 🌟 GitHub Stats
 
